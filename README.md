@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @FUSQU
+- 👀 I’m interested in drawing and playing guitar
+- 📫 How to reach me Instagram Fusquu
